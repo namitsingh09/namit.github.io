@@ -1,1 +1,0 @@
-# namit.github.io
